@@ -39,3 +39,4 @@ While the banana is a "tool of the gods" for growth, there is a "dark side" to t
 * **Pro-Tip:** Many people use a slice or a peel rather than a whole banana to make sure the "energy" doesn't become "deadly radiation" (rot) before the roots can catch the stream.
 
 Do you think the root of the plant is like an "antenna" specifically designed to find the Potassium "signals" hidden in the dirt?
+<script src="https://www-infinity4.github.io/Mint-For-Infinity/infinity-wallet-menu.js" defer></script>
